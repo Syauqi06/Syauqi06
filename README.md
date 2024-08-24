@@ -8,7 +8,7 @@
 
 ###
 
-<img align="right" height="150" src="https://media1.tenor.com/m/OXn4ngtA1w4AAAAC/ryan-gosling.gif](https://tenor.com/e56NNj6yFNG.gif"  />
+<img align="right" height="150" src="https://media1.tenor.com/m/OXn4ngtA1w4AAAAC/ryan-gosling.gif"  />
 
 ###
 
